@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @skilldaniel
+- 👋 Hi, I’m @passioncasino
 - 👀 I’m interested in software development, especially casino game and live streaming
 - 🌱 I’m currently learning about business in gambling world.
 - 💞️ I’m looking to collaborate on service my games.
